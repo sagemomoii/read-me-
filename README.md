@@ -16,3 +16,5 @@ i want a friend group.
 edit 1 jul 11
 
 ppl who say bmf when they alr have a big friend group are so stupid 
+
+omg int int WHY WONT SOMEONE INT IN CRINE bro and also c+h bro bro bmff...🥹
