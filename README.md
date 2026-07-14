@@ -28,3 +28,7 @@ mizisua
 EDIT 3 jul 13
 
 im gonna uhh get some things for my ita and a pin maker for my lovely aiti momoi ngh 
+
+jul 4 
+
+guys im ns / vs i will block if ur also a airi yume ok
