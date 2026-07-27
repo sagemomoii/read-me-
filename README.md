@@ -1,34 +1,12 @@
-# read-me-
+hi!! we are a sys / system so know this before interacting
 
-bmf pls
-pls
-pls
-pls
-pls
-s
+our skins mean who is fronting (and also emojis
 
+kanade : 🎹 / kanade skin
+sage : 🍰 / airi7 skin
+chocola : 🍫 / emu skin
 
 
-i want a friend group.
+sage is our host (hey theyre also writing this) and you'll mostly be speaking to them and kanade ^^
 
-
-
-edit 1 jul 11
-
-ppl who say bmf when they alr have a big friend group are so stupid 
-
-omg int int WHY WONT SOMEONE INT IN CRINE bro and also c+h bro bro bmff...🥹
-
-
-edut 2 jul12 
-
-mizisua
-
-
-EDIT 3 jul 13
-
-im gonna uhh get some things for my ita and a pin maker for my lovely aiti momoi ngh 
-
-jul 4 
-
-guys im ns / vs i will block if ur also a airi yume ok
+chocola fronts less but its clear when she does soo you'll tell by how i act.
