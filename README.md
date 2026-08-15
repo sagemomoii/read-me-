@@ -3,7 +3,7 @@
 
 
 
-hi!! we are a sys / system so know this before interacting
+hi!! we are a new sys / system so know this before interacting
 
 
 <img width="498" height="44" alt="9682" src="https://github.com/user-attachments/assets/f5249e4a-1f30-450f-9a39-eed4c8275eed" />
@@ -21,6 +21,7 @@ sage is our host (hey theyre also writing this) and you'll mostly be speaking to
 
 
 chocola fronts less but its clear when she does soo you'll tell by how she acts. (cheery, kind and eager?)
+
 
 
 <img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/9830705c-e8b4-41cd-b56b-dd6c0d6b292c" />
